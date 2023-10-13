@@ -1,2 +1,2 @@
 # your foolish
-# very foolosu
+# very foo
